@@ -6,4 +6,4 @@
 
 - translator
 <br>
-https://drive.google.com/open?id=1u5NBeTTdHyRJw79UVd1Ib0KXdWgaDrCB
+https://drive.google.com/open?id=1J8AX6BEfCPBgJK9SYtroKQIYmHjHhrov
